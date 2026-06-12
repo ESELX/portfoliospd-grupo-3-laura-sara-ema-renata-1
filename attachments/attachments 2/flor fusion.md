@@ -1,0 +1,1 @@
+![[attachments/attachments 2/Captura de ecrã 2026-06-10 201437.png]]
